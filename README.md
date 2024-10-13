@@ -8,7 +8,7 @@
 
 - 📫 How to reach me **himanisharma15435029@gmail.com**
 
-- ⚡ Fun fact **I usually know what people's true intension are.**
+- ⚡ Fun fact **I love to read and sleep.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
